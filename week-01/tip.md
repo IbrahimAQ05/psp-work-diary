@@ -1,4 +1,4 @@
-# Tips for this week
+# Week 1 
 
 Comment on the personality type identified in the questionnaire.  Discuss the role you hope to play in the team.
 
